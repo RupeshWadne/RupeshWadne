@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on blockchain and web3.<br>
+Hi, I'm Rupesh Wadne, a web3 developer building decentralized applications (dApps) and blockchain solutions😊.<br>
 
 
 ## 🌐 Socials:
